@@ -11,12 +11,13 @@
 
 #### April 12, 1992
 
- ## *Active job search*
+## *Active job search*
 
  Contacts:
  +7 (905) 948-06-98 
  
  Preferred method of communication:
+ 
 lyrica13@mail.ru
 
 #### *Place of residence Krasnodar, ready to move, ready for business trips*
