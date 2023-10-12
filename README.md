@@ -21,3 +21,4 @@
 lyrica13@mail.ru
 
 #### *Place of residence Krasnodar, ready to move, ready for business trips*
+
